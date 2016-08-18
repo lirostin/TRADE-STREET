@@ -1,6 +1,8 @@
 # TRADE-STREET
 
+
 ok, that's me
+
 
 Western civilization, it seems to me, stands by two great heritages. One is the scientific spirit of adventure — the adventure into the unknown, an unknown which must be recognized as being unknown in order to be explored; the demand that the unanswerable mysteries of the universe remain unanswered; the attitude that all is uncertain; to summarize it — the humility of the intellect. The other great heritage is Christian ethics — the basis of action on love, the brotherhood of all men, the value of the individual — the humility of the spirit.
 
